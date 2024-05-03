@@ -18,7 +18,8 @@ Join me on an exhilarating journey exploring electronics from basics to cutting-
 
 ## Connect With Us
 
-- [Instagram](https://instagram.com/cosmelectronics?igsh=ejdlaW16OHQwampy)
+- [YouTube](https://www.youtube.com/@cosmelectronics)
+- [Instagram](https://instagram.com/cosmelectronics)
 - [GitHub](https://github.com/cosmelectronics)
 - [LinkedIn](https://linkedin.com/build-relation/newsletter-follow?entityUrn=7079476255753912320)
 - [WhatsApp](https://whatsapp.com/channel/0029VaJnmX82v1Ixr7alqh0t)
